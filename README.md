@@ -1,1 +1,1 @@
-# assignmnt-2
+This photograph captures a small plant in full bloom, standing calmly amid stone and soil. It reflects patience, care, and the quiet strength of nature—how something soft can grow and shine even in the simplest surroundings.# assignmnt-2
